@@ -2,7 +2,8 @@
 - 🚀 Professional Web and Graphic Designer | SEO | Digital Marketing 
 - 🎓 Master of Business Administration - MBA
 - 🎓 Bachelor of Technology (BTech Degree)
-- 📫 Happy to help 
+- ✨ Happy to help
+- 📫 Find me on: twitter · linkedin · email 
 
 <!---
 infosreenus/infosreenus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
