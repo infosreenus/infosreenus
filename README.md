@@ -1,4 +1,4 @@
--🏷️ Here's a little bit about me:
+ 🏷️ Here's a little bit about me:
 - 👋 Hi, I’m Sreenu S
 - 🚀 Professional Web and Graphic Designer | SEO | Digital Marketing 
 - 🎓 Master of Business Administration - MBA
