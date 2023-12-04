@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @sreenus
-- 🚀 Professional Web and Graphic Designer | SEO
+- 👋 Hi, I’m Sreenu S
+- 🚀 Professional Web and Graphic Designer | SEO | Digital Marketing 
 - 🎓 Master of Business Administration - MBA
 - 🎓 Bachelor of Technology (BTech Degree)
 - 📫 Happy to help 
